@@ -1,4 +1,4 @@
-# Go to [@the-akze](https://github.com/the-akze)
+# MAIN: [@the-akze](https://github.com/the-akze)
 
 _"ayy-akshat"_ was my old username.
 
